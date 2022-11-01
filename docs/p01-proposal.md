@@ -1,4 +1,3 @@
-# NBA Heights Over The Years
 
 Jake Keene (Jakek411@uw.edu),
 
